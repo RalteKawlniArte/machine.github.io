@@ -1,4 +1,1 @@
-# machine.github.io
-asd
-asd
-asd
+Zoṭawng hi a har teh chiam lo ve.
